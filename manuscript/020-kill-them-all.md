@@ -1,0 +1,21 @@
+# Kill Them All
+
+The same group of people that had gone to the warehouse the day before went today - minus one dead mage.  It was still troubling thinking that someone from this world wanted me dead.  It made me wonder what sort of problems I was causing back home too that I was crossing dimensions like that.  Alec's siblings, Clary and Simon all started their search around the perimetere while Magnus went inside to look around, Magnus insisted I come with him for the extra insight into my magical world, and neither Ant nor Alec were going to leave us alone.  Not that either of us couldn't protect ourselves.  It was a protective thing.  And honestly Ant was going to be more help in the magic realm.  I knew mine, he knew his but he was far older than anyone here and that included Magnus.  
+
+Alec and I were party to listening to the old timers talking about things that happened centuries ago on both worlds and how our histories differed.  It could have been very informative if I cared to listen to the history.  I didn't in school and I still didn't now.  It was the reason I had advisors.  So Alec and I snopped around outside the room with the big magic drawing on the floor while Magnus did his thing.  We weren't out of ear shot when the building started to vibrate.  
+
+And not a good kind of vibrate, I may have made that comment outloud when I next looked at Alec he as blushing from ear to ear but his bow was drawn and we were walking towards the source of it.  Another portal opened up, this one much bigger than the one they had seen earlier.  It wasn't purple, nor was it golden.  It was so black I wouldn't even call it that it was empty of everything, more like a black hole.  Demons poured through and the warehouse shook harder and faster and the beams above were giving way.  The roof was going to come down on us.  
+
+I could think of only one thing to do to keep us from being flattened and swarmed at the same time.  Patterns of fire and earth spread across the beams.  I could strengthen them.  I could weld the rivets and bolts in place without much thought.  But it was going to take everything I had to cover a structure this big.  
+
+Alec was pegging demons the moment they fell through the portal but they were coming faster than even he could keep up.  I heard the deafening crack of the whip his sister weilded.  The remaining shadow hunters were soon picking off those that came in. 
+
+I couldn't do anything other than keep the roof from falling.  Ant looked at me and frowned, he couldn't help with that, he was an elementalist but he couldn't do what I did.  He opted to fight and keep things from reaching me.  He didn't step into the foray anymore than Magnus did.  He stood by me and behind Ant, expecting the same protection from Ant, and when Magnus' hands started to glow bright blue I knew he was trying to close the portal from this side.
+
+A voice slithered over their ears, "Kill.  Kill them all."
+
+A mass of demons flowed through the portal and everyone but me took a step back to get some more distance, I couldn't move.  Ant yelled, "We have to hold this position, or these two will go down."  It was like they all moved in unison, well practiced manuervers as they surrounded Magnus and I.  They'd keep the demon's away while we did our job.  
+
+My body started to strain from the over use of my ability and the lack of replenishment be it food or general resources.  I was starting to lose my grip on things.  I didn't have time to spare for anyone else as I started a secondary weave.  It pulled at my resources even more but I wasn't going to let the building collapse on top of my friends.  I would make sure they survived at least even if the demons over run us.  I could protect them.
+
+But there wasn't much need for the secondary weave as two things happened simultaneously.  The portal winked closed cutting several demons in half and Magnus fell to the ground.  The buidling stopped vibrating and when I released my weaves I sank down ont to my knees.  We were still no closer to figuring anything out.  But we had survived.
